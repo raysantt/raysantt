@@ -1,4 +1,4 @@
 ## certo chavao, firmeza?
-e ai, rayssa na voz certo, satisfação :
+e ai, rayssa na voz certo, satisfação 
 
-estudo no 
+estudo no doroteia e é isso
